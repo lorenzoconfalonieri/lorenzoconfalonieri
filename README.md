@@ -6,7 +6,7 @@
 - Interested in applied nuclear sciences ☢️ and AI 💻
 
 But also...
-- 🎙 Host of "In viaggio con Lorenzo"
+- 🎙 Host of "In viaggio con Lorenzo" (in Italian 🇮🇹)
 -  Apple lover
 - 🏎️ Formula 1 enthusiast
 
