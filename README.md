@@ -1,7 +1,7 @@
 ### Hi there 👋
 
+"If you can dream it, you can do it" ✨
 #### ME
-- ✨ "If you can dream it, you can do it" 
 - 🎓 MSc and BSc in physics @ University of Milano
 - Interested in applied nuclear sciences ☢️ and AI 💻
 
